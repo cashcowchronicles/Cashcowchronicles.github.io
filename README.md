@@ -1,0 +1,1 @@
+With a strong foundation in Excel and basic Python, I'm eager to contribute to organizational success by applying my data analysis skills to uncover actionable insights and inform strategic decisions.
